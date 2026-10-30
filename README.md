@@ -1,1 +1,1 @@
-Okay, okay, uh hah hah hah, the solution appears.
+Master Ex-Wye-Zed-Zed-Kay-El-Kay the maniac.
